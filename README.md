@@ -1,1 +1,1 @@
-Link: https://mihtluv.github.io/form_validation1/
+Link: https://ntmi2k3.github.io/form_validation1/
